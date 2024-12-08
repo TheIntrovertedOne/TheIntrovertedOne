@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TheIntrovertedOne
 - 👀 I’m interested in coding random stuff and FNaF
-- 🌱 I’m currently learning how C++ works
+- 🌱 I’m currently learning how HTML works
 - 💞️ I’m looking to collaborate on anything really lmao. I'm no master though.
 - 📫 How to reach me: Discord - Fennoshot; Email - mthawner@gmail.com; Text/call - as if I'd give you my phone number online.
 - 😄 Pronouns: They/Them
